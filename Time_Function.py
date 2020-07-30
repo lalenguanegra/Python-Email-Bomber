@@ -41,6 +41,3 @@ numberEmails = 1
 
 for _ in range(numberEmails):
     test()
-
-
-
