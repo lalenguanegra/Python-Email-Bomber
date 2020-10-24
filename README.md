@@ -4,11 +4,11 @@
 
 DEMO:
 
-https://www.youtube.com/watch?v=mkIbJNHw2GA
+https://www.bitchute.com/video/mwWGoVo2uFrQ/
 
 Time Function:
 
-https://www.youtube.com/watch?v=n5-DEyyAxdA
+https://www.bitchute.com/video/ApsXw1SQGT1z/
 
 Use to prank a friend or family member.
 
